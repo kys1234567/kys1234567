@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on 長榮大學
 - 📫 How to reach me 113b06002@mailst.cjcu.edu.tw
-- 😄 Pronouns: 咪咪
+- 😄 Pronouns: 
 - ⚡ Fun fact: 
-Licenses and Certificates：企業碳盤查證照、ESG證照(管理學)
+Licenses and Certificates：企業碳盤查證照、ESG證照(管理學)、汽機車駕照
 <!---
 kys1234567/kys1234567 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
