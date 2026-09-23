@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on 長榮大學
 - 📫 How to reach me 113b06002@mailst.cjcu.edu.tw
-- 😄 Pronouns: 
+- 😄 Pronouns: 咪咪
 - ⚡ Fun fact: 
 Licenses and Certificates：企業碳盤查證照、ESG證照(管理學)
 <!---
