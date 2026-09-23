@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on 長榮大學
 - 📫 How to reach me 113b06002@mailst.cjcu.edu.tw
-- 😄 Pronouns: 小柯
+- 😄 Pronouns: 小柯、咪咪
 - ⚡ Fun fact: 
 
 <!---
